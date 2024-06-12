@@ -1,0 +1,1 @@
+Generate custom QR codes quickly and easily with our QR code maker tool. This intuitive online platform allows you to create high-quality QR codes that can be used for a variety of purposes, from marketing and advertising to education and personal use.
